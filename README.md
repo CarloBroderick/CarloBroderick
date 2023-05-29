@@ -2,8 +2,6 @@
 
 😄 Pronowns: He, Him, His
 
-Personal Website: 
-
 LinkedIn: https://www.linkedin.com/in/carlo-broderick-55a78352/
 
 
