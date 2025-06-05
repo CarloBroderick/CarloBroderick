@@ -1,9 +1,6 @@
 ### Carlo Broderick 👋
 
-😄 Pronowns: He, Him, His
-
 LinkedIn: https://www.linkedin.com/in/carlo-broderick-55a78352/
-
 
 📫 How to reach me: carlwilliambroderick@gmail.com
 
